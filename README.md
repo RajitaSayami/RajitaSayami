@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on small basic projects.
 - 📫 How to reach me: through my socials.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love crime podcast and crocheting
 
 <!---
 RajitaSayami/RajitaSayami is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
